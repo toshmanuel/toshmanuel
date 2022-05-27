@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @toshmanuel
-- 👀 I’m interested in Bitcoin development and Web development
 - 🌱 I’m currently a fellow @Qala Africa were I am learning the philosophilies of Bitcoin and Bitcoin development.
 - 💞️ I’m looking to collaborate on Bitcoin development, and anything fascinating and worth doing.
 - 📫 How to reach me (oladimejiomotosho5@gmail.com or tel: +2348176587661).
